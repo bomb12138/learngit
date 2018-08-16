@@ -1,1 +1,1 @@
-you are a vivid bitch!
+you are a vivid and beautiful bitch!
